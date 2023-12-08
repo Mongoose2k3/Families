@@ -8,11 +8,14 @@
 2. https://acrlmich.org
 
 
-<h3>Notes</h3>
+# Notes
 <ol>
 	<li>Getting Some Families out of Gaza<ol>
 	<li>Humanitarian Parole</li>
 	<li>Children under 21 or Parent of US Citizen</li>
 	<li>3rd degree relative ???</li>
-	<li></li>
-</ol></li>
+	<li>??</li>
+</ol>
+
+# Videos
+1. https://www.youtube.com/watch?v=vZfI-K1HQp0  ACRL
