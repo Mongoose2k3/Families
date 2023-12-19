@@ -8,6 +8,14 @@
 1. https://www.uscis.gov/humanitarian/humanitarian_parole 
 2. https://acrlmich.org
 
+# Internal Criminal Court (accepting online reports of war crimes)
+1. https://www.justiceforall.org/icc-submissions/
+- Justice For All
+- Toolkit for Palestinians
+- To File Their Case to the 
+- International Criminal Court
+
+
 # Help and Relief Oganizations
 1. https://www.pcrf.net/
 
